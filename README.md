@@ -1,1 +1,1 @@
-# meer-democratie wordt de nieuwe website van Democratie.nu
+# meer-democratie wordt de nieuwe website van democratie.nu
